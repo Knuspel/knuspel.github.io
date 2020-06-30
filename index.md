@@ -8,3 +8,5 @@ Their first album was called "Hybrid Theory" and already contained titles like N
     * The Rising Tied (noteable Songs: Remeber the Name, Where'd you go?)
 * Organizer of a lot of Events the do
 > Chester wouldn't have this shit!
+
+<img src="https://upload.wikimedia.org/wikipedia/commons/thumb/b/be/Linkin_Park-Rock_im_Park_2014-_by_2eight_3SC0450.jpg/800px-Linkin_Park-Rock_im_Park_2014-_by_2eight_3SC0450.jpg"/>
